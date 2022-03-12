@@ -1,0 +1,1 @@
+# ltz-coin-logo
